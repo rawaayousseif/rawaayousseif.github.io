@@ -37,7 +37,7 @@ I focus on building intelligent solutions that solve real-world business problem
 
 ## 📫 Let's Connect
 
-- [LinkedIn](www.linkedin.com/in/rawaa-yousseif-354760b7)  
+- [LinkedIn]([www.linkedin.com/in/rawaa-yousseif-354760b7](https://www.linkedin.com/in/rawaa-yousseif-354760b7/))  
 - [Email](mailto:rawaamagdynew@yahoo.com)
 
 ---
